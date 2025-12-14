@@ -1,3 +1,3 @@
 ### Hi👋
 
-*🌱 I'm passionate about JavaScript & Web*
+*I care deeply about quality, customers, and people.*
